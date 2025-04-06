@@ -1,2 +1,2 @@
-a normal person who likes to understand things in depth
+A normal person who likes to understand things in depth
 😶
